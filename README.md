@@ -1,6 +1,6 @@
 <p align="center">
   <img src="https://media.tenor.com/QAWhOCpVrdQAAAAi/jade-harley-homestuck.gif" />
-</br></br> raven shy/hyr masc terms
+</br></br> raven shy/hyr fem terms
 </br> pt info is pinned below....
 </p>
 
