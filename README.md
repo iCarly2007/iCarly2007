@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://file.garden/ZthbpnOngl0iXIE_/woohoo" />
+  <img src="https://file.garden/ZthbpnOngl0iXIE_/misc%20stuff/woohoo" />
 
 
 <!--
