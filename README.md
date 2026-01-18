@@ -1,6 +1,5 @@
 <p align="center">
   <img src="https://file.garden/ZthbpnOngl0iXIE_/misc%20stuff/woohoo" />
-  ![](https://komarev.com/ghpvc/?username=iCarly2007&color=ff69b4)
 
 
 <!--
